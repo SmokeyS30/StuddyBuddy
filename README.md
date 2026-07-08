@@ -1,0 +1,2 @@
+# StuddyBuddy
+Privacy Policy
